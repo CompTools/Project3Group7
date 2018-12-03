@@ -1,3 +1,3 @@
-materials for Project 3
+materials for Project 3 Group 7
 
-Qinying Lin & Min Zhao
+Q.L. & M.Z.
